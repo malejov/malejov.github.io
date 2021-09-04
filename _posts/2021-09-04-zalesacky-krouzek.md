@@ -7,4 +7,8 @@ Ve školním roce 2021/2022 pořádáme kroužek lesní moudrosti pro děti od 5
 
 Podrobnější informace naleznete na přiloženém plakátku.
 
-![Zálesácký kroužek](/assets/article_images/zalesacky-krouzek.pdf)
+<object data="/assets/article_images/zalesacky-krouzek.pdf" type="application/pdf" width="700px" height="700px">
+    <embed src="/assets/article_images/zalesacky-krouzek.pdf">
+        <p>Váš prohlížeč nepodporuje zobrazování PDF. Prosím stáhněte si PDF zde: <a href="http://yoursite.com/the.pdf">Stáhnout PDF</a>.</p>
+    </embed>
+</object>
