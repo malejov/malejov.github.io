@@ -7,10 +7,12 @@ Srdečně zveme dobrovolníky na podzimní sousedský úklid Ukliďme Česko, kt
 
 Pytle na sbírání odpadků naleznete na třech stanovištích, a to:
 1) Bělohorská brána,
-2) 2) Ruzyňská brána,
-3) 3) [vyústění cyklostezky na ulici Kralupská](https://en.mapy.cz/zakladni?x=14.4000000&y=50.0500000&z=11&q=GPS%2050.0814033N%2C%2014.3211742E).
+2) Ruzyňská brána,
+3) [vyústění cyklostezky na ulici Kralupská](https://en.mapy.cz/zakladni?x=14.4000000&y=50.0500000&z=11&q=GPS%2050.0814033N%2C%2014.3211742E).
 Na těchto třech stanovištích můžete také zanechávat sesbíraný odpad.
+
 Pytle budou rovněž k mání u Komunitní zahrady Malejov. Zde prosíme pytle s posbíraným odpadem neodkládejte.
+
 [Připojte se jako dobrovolník](https://www.uklidmecesko.cz/zapojitse/dobrovolnik) na webu Ukliďme Česko nebo prostě jen přijďte.
 
 Hodit se budou vlastní pracovní rukavice.
