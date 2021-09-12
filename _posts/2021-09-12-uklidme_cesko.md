@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ukliďme Česko - podzimní úklid obory Hvězda 18. 9. 2021
+title: Ukliďme Česko - podzimní úklid obory Hvězda 18. září
 ---
 
 Srdečně zveme dobrovolníky na podzimní sousedský úklid Ukliďme Česko, který proběhne v sobotu 18. září 2021 v oboře Hvězda. Budeme se na vás těšit od 10 hodin.
