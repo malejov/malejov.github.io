@@ -25,4 +25,4 @@ Přidejte se k [události na Facebooku](https://www.facebook.com/events/83743351
 
 ![Ukliďme Česko](/assets/article_images/pytel_odpadu.jpg)
 
-![Úklid podpoří Pražské služby](/assets/article_images/prazske_sluzby_logo.jpg)
+![Úklid podpoří Pražské služby](/assets/prazske_sluzby_logo.jpg)
