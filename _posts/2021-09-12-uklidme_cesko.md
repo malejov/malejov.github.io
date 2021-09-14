@@ -17,10 +17,12 @@ Pytle budou rovněž k mání u Komunitní zahrady Malejov. Zde prosíme pytle s
 
 Hodit se budou vlastní pracovní rukavice.
 
-Odvezení odpadu zajišťují Pražské služby a. s.
+Odvezení odpadu zdarma zajišťují Pražské služby a. s.
 
 Podpořeno z grantového programu České spořitelny “Dokážeme víc”, ve spolupráci s Nadací Via.
 
 Přidejte se k [události na Facebooku](https://www.facebook.com/events/837433513629338?ref=newsfeed) a pomozte nám ji šířit sdílením. Děkujeme!
 
 ![Ukliďme Česko](/assets/article_images/pytel_odpadu.jpg)
+
+![Úklid podpoří Pražské služby](/assets/article_images/prazske_sluzby_logo.jpg)
