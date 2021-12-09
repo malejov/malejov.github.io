@@ -10,6 +10,7 @@ permalink: /kontakt/
 - Předsednictvo: Ing. Marek Fencl, Bc. Tereza Skalická
 - E-mail: [LKMalejov@gmail.com](mailto:LKMalejov@gmail.com)
 - Telefon: +420 739 717 431 (Mgr. Natalie Baránková, koordinátorka)
+- Číslo účtu: 2201701486/2010
 - Facebook: [https://www.facebook.com/LKMalejov](https://www.facebook.com/LKMalejov)
 - Jsme členy [Asociace lesních MŠ](https://www.lesnims.cz/lesni-klub-malejov.html).
 
