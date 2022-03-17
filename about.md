@@ -4,19 +4,19 @@ title: O nás
 permalink: /about/
 ---
 
-Jsme lesní klub, který postupně krystalizuje z přátelských setkávání rodičů a dětí v Oboře Hvězda. Jak děti rostou, roste i naše touha a odvaha vytvářet pro ně prostor, v němž by mohly navazovat první přátelství, poznávat „velký svět“ za hranicemi své vlastní rodiny, učit se nejen znát, ale i mít rád prostředí, v němž žijí.
+Jsme lesní klub, který postupně vykrystalizoval z přátelských setkávání rodičů a dětí v oboře Hvězda. Jak děti rostou, roste i naše touha a odvaha vytvářet pro ně prostor, v němž by mohly navazovat první přátelství, poznávat „velký svět“ za hranicemi své vlastní rodiny, učit se nejen znát, ale i mít rád prostředí, v němž žijí.
 
 ![Zimní bruslení](/assets/article_images/zimni_brusleni.jpg)
 
-Lesní klub Malejov je komunitní dětský klub nabízející předškolní výchovu a vzdělávání pro malou skupinu dětí od dvou do šesti let. Svými principy se hlásí ke konceptu vzdělávání pro trvale udržitelný rozvoj a důraz klade na výchovu v přímém kontaktu s přírodou. Ve svých hodnotách a postojích čerpá z křesťanských tradic (tematický program v období Vánoc a Velikonoc, apod.), zároveň však vědomě překračuje hranice náboženství a vyznání: nechceme se uzavírat do své sociální, náboženské, a ani jiné názorové bubliny. Naopak odlišnost našich členů vnímáme jako zdroj obohacení pro komunitu a jako pobídku k dialogu, k bytí na společné cestě.
+Lesní klub Malejov je komunitní dětský klub nabízející předškolní výchovu a vzdělávání pro malou skupinu dětí od dvou do sedmi let. Svými principy se hlásí ke konceptu vzdělávání pro trvale udržitelný rozvoj a důraz klade na výchovu v přímém kontaktu s přírodou. Ve svých hodnotách a postojích čerpá z křesťanských tradic (tematický program v období Vánoc a Velikonoc apod.), zároveň však vědomě překračuje hranice náboženství a vyznání: nechceme se uzavírat do své sociální, náboženské, a ani jiné názorové bubliny. Naopak odlišnost našich členů vnímáme jako zdroj obohacení pro komunitu a jako pobídku k dialogu, k bytí na společné cestě.
 
-Zázemí nacházíme naší komunitní zahradě, jejímž srdcem je jurta. Důraz klademe především na výchovu v přímém kontaktu s přírodou, proto trávíme většinu společného času venku. Poznáváme oboru v různých obdobích a proměnách jejího života, víme dobře, co je to bláto, led a sníh, radujeme se z příchodu jara a pak ze stínu a chladu, o který se s námi les dělí v létě.
+Zázemí nacházíme na naší komunitní zahradě, jejímž srdcem je jurta. Důraz klademe především na výchovu v přímém kontaktu s přírodou, proto trávíme většinu společného času venku. Poznáváme oboru v různých obdobích a proměnách jejího života; víme dobře, co je to bláto, led a sníh, radujeme se z příchodu jara a pak ze stínu a chladu, o který se s námi les dělí v létě.
 
-Kromě přímého kontaktu s přírodou je pro nás důležitý také osobností přístup k dítěti. Každý člen naší komunity, dítě i dospělý, je naprosto jedinečný: má jinou povahu, temperament, jiné kořeny. Někdy je těžké spolu vyjít, zároveň však právě skrze poznávání sebe a druhých rosteme, skrze vytyčování vlastních hranic a zároveň překračování svých individuálních potřeb zrajeme a tvoříme něco nového.
+Kromě přímého kontaktu s přírodou je pro nás důležitý také osobnostní přístup k dítěti. Každý člen naší komunity, dítě i dospělý, je naprosto jedinečný: má jinou povahu, temperament, jiné kořeny. Někdy je těžké spolu vyjít, zároveň však právě skrze poznávání sebe a druhých rosteme, skrze vytyčování vlastních hranic a zároveň překračování svých individuálních potřeb zrajeme a tvoříme něco nového.
 
 ![Skřítčí kutáliště](/assets/article_images/skritci_kutaliste.jpg)
 
-V průběhu dne klademe důraz na pevné body programu (ranní a odpolední kruh, ranní hudební, společný oběd a odpočinek), dostatek prostoru však věnujeme také volné hře, kterou považujeme za jednu z bytostných potřeb dětí předškolního věku. Hledáme přitom rovnováhu mezi volností a řádem.
+V průběhu dne klademe důraz na pevné body programu (ranní a odpolední kruh, společný oběd a odpočinek), dostatek prostoru však věnujeme také volné hře, kterou považujeme za jednu z bytostných potřeb dětí předškolního věku. Hledáme přitom rovnováhu mezi volností a řádem.
 
 ![Ornitologická procházka](/assets/article_images/ornitologicka_prochazka.jpg)
 
@@ -38,7 +38,7 @@ Později les odkoupil od benediktinů král Ferdinand I., aby zde roku 1534 vybu
 
 Název našeho lesního klubu odkazuje na původní les, ale zároveň logo odkazuje i na letohrádek Hvězda v podobě korun stromů. Nepřicházíme do pozůstatků lesa proto, abychom jej kultivovali a obdělávali, ale abychom byli sami kultivováni a vzděláváni pobytem v přírodě. Přitom ovšem nechceme nostalgicky a naivně usilovat o návrat k divoké přírodě, ale spíše se učit žít s ní v rovnováze na místě, kde můžeme čerpat z tradice dlouhé tři čtvrtě tisíciletí.
 
-K geniu loci obory Hvězda patří nejen hledání rovnováhy mezi přírodou a člověkem, ale také duchovní tradice staršího [břevnovského kláštera][brevnov] a mladší [libocké farnosti][farnost], která nám ostatně poskytuje zázemí ve farním centru Malejov.
+K geniu loci obory Hvězda patří nejen hledání rovnováhy mezi přírodou a člověkem, ale také duchovní tradice staršího [břevnovského kláštera][brevnov] a mladší [libocké farnosti][farnost], která nám ostatně v našich počátcích poskytovala zázemí ve farním centru Malejov.
 
 ![Logo Lesního klubu Malejov](/assets/article_images/logo.png)
 
