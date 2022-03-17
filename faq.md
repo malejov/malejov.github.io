@@ -58,7 +58,7 @@ Cena pro školní rok 2022/2023 činí 4200 Kč za dvoudenní docházku s možno
 
 ### Jaká je provozní doba klubu?
 
-Ve školním roce 2021/2022 funguje klub od pondělí do čtvrtka od 8 do 16 hodin, docházka je možná dvoudenní a čtyřdenní. Pátek je vyhrazen pro komunitní setkávání dětí a rodičů.
+Ve školním roce 2021/2022 funguje klub od pondělí do čtvrtka od 8 do 16 hodin, docházka je možná dvoudenní (pondělí + úterý nebo středa + čtvrtek) a čtyřdenní. Pátek je vyhrazen pro komunitní setkávání dětí a rodičů.
 
 
 ### Moje dítě nemá zkušenost s pobytem v kolektivu beze mne. Co s tím?
