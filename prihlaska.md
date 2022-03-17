@@ -7,5 +7,7 @@ Vážení rodiče,
 
 velmi si ceníme Vašeho zájmu o náš lesní klub. Kapacita klubu pro školní rok 2021/2022 je v tuto chvíli naplněna. Pokud máte zájem, abychom vás kontaktovali v případě, že se během roku uvolní místo, vyplňte prosím [přihlášku na čekací listinu.](https://docs.google.com/forms/d/e/1FAIpQLSdpfh4ZLk6OpJroxKuiZqFOHpd_pzUx1cq8JVYJolVMLE8O4A/viewform?usp=sf_link)
 
+Máte-li zájem o docházku v roce 2022/23, zveme vás na Den otevřených dveří v pondělí 21. března 2022. Podrobnější inforace najdete [zde](http://www.malejov.eu/2022/03/13/den_otevrenych_dveri.html).
+
 
 ![Výprava...](/assets/gallery/2019-11-13_10-08-24.jpg)
