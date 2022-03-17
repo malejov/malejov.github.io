@@ -30,9 +30,9 @@ Dbáme na to, abychom v provozu lesního klubu vytvořili prostor pro srozumitel
 
 ### Co bude moje dítě celý den jíst?
 
-Děti si nosí vlastní jídlo z domova. Svačinu a pití mají uložené na cestách v batůžku, teplý oběd v termosce si nechávají ráno v jurtě. S každým jídlem si tak vybalí kousek domova a zároveň mohou ochutnat, co dobrého mají ostatní kamarádi.
+Děti dostávají dovážené teplé obědy sestávající z polévky a hlavního jídla, v případě speciálních stravovacích požadavků si nosí vlastní jídlo z domova v termosce. Dopolední svačinu a pití mají uložené na cestách v batůžku, odpolední svačinu si nechávají ráno v jurtě.
 
-Nicméně stravování se každý rok probíráme s rodiči znovu, a pokud si většina bude přát obědy dovážet, zařídíme to.
+Nicméně stravování každý rok probíráme s rodiči znovu, podle jejich preferencí je možné jídlo dovážet nebo zvolit obědy domácí.
 
 
 ### Píšete, že čerpáte z křesťanské spirituality, co konkrétně to znamená? Jste křesťanská školka?
@@ -53,14 +53,12 @@ Na budování a zvelebování zázemí získáváme finance zejména z grantů a
 
 ### Jaká je výše měsíčních příspěvků?
 
-Cena za dvoudenní docházku činí 3800 Kč a za čtyřdenní 6950 Kč.
-
-Cena pro školní rok 2021/2022 činí 4000 Kč za dvoudenní docházku s možností náhrad a 7600 Kč za čtyřdenní docházku.
+Cena pro školní rok 2022/2023 činí 4200 Kč za dvoudenní docházku s možností náhrad a 7800 Kč za čtyřdenní docházku.
 
 
 ### Jaká je provozní doba klubu?
 
-Ve školním roce 2020/2021 funguje pondělí do čtvrtka od 8 do 16 hodin, docházka je možná dvoudenní a čtyřdenní. Pátek je vyhrazen pro komunitní setkávání dětí a rodičů.
+Ve školním roce 2021/2022 funguje klub od pondělí do čtvrtka od 8 do 16 hodin, docházka je možná dvoudenní a čtyřdenní. Pátek je vyhrazen pro komunitní setkávání dětí a rodičů.
 
 
 ### Moje dítě nemá zkušenost s pobytem v kolektivu beze mne. Co s tím?
