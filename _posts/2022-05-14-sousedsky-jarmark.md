@@ -3,7 +3,7 @@ layout: post
 title: Přijďte na první malejovský bazar 31. 5. 2022! 
 ---
 
-Srdečně Vás zveme na první ročník sousedského jarmarku v Lesním klubu Malejov. V úterý 31. května vás od 15:30 zveme na malejovskou komunitní zahradu.
+Srdečně Vás zveme na první ročník sousedského jarmarku v Lesním klubu Malejov. V úterý 31. května začíná v 15:30 na malejovské zahrádce.
 
 Kromě bazaru s dětským i dospělým oblečením se můžete těšit na rukodělné workshopy, fotokoutek, pohoštění i výtvory školkových dětí.
 
