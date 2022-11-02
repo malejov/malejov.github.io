@@ -12,6 +12,14 @@ permalink: /nas-tym/
 .person:nth-child(even) p { margin-left: 320px; }
 .person:nth-child(odd) img { float: right; }
 .person:nth-child(odd) p { margin-right: 320px; }
+
+@media screen and (max-width: 700px) {
+    .person img { margin: auto auto 1em; }
+    .person:nth-child(even) img { float: none; }
+    .person:nth-child(even) p { margin-left: 0px; }
+    .person:nth-child(odd) img { float: none; }
+    .person:nth-child(odd) p { margin-right: 0px; }
+}
 </style>
 
 
