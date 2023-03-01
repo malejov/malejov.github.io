@@ -13,4 +13,4 @@ Z ulice Jinočanská se vydejte po pěšině mezi domem č. 3 a zdí obory Hvěz
 Cestu si můžete virtuálně projít [na videu na našem facebooku](https://www.facebook.com/LKMalejov/videos/996250114334172).
 
 
-![Jaro v Malejově](/assets/article_images/jarni_vyhled_strechou_jurty.jpg)
+![V lese nad mapou](/assets/article_images/nad_mapou.jpg)
