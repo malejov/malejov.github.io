@@ -5,7 +5,7 @@ title: Pozvánka na Den otevřených dveří 2023
 Milí přátelé, přijměte pozvání na Den otevřených dveří, který se koná v úterý 28. března 2023 od 16 hodin na zahradě komunitního lesního klubu Malejov. Setkání potrvá přibližně hodinu a půl, v úvodní informativní části si řekneme, jak klub funguje a seznámíte se s některými členy týmu. Následně budete mít příležitost prohlédnout si zahradu i zázemí. Rádi vám také zodpovíme vaše dotazy.
 
 Prosíme, potvrďte předem svou účast mailem na lkmalejov@gmail.com.
-Těšíme se na vaši návštěvu! 🌸
+Těšíme se na vaši návštěvu!
 
 
 Kudy k nám?
