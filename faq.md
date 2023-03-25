@@ -53,7 +53,7 @@ Na budování a zvelebování zázemí získáváme finance zejména z grantů a
 
 ### Jaká je výše měsíčních příspěvků?
 
-Cena pro školní rok 2022/2023 činí 4200 Kč za dvoudenní docházku s možností náhrad a 7800 Kč za čtyřdenní docházku. Výše členských příspěvků pro další školní rok bude oznámena během března 2023.
+Cena pro školní rok 2023/2024 činí 4400 Kč za dvoudenní docházku s možností náhrad a 8000 Kč za čtyřdenní docházku. Výši členských příspěvků pro další školní rok oznámíme vždy nejpozději v březnu předchozího školního roku.
 
 
 ### Jaká je provozní doba klubu?
