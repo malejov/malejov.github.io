@@ -8,7 +8,7 @@ Níže naleznete detaily jednotlivých kroužků a také odkazy na přihlášky.
 
  Výtvarný lesní kroužek
 
-!(/assets/article_images/vytvarka_plakat2023.jpg)
+![](/assets/article_images/vytvarka_plakat2023.jpg)
  
 - Vede Amálie Domanjová.
 - Den a čas konání: pondělí 15:30 - 17:00. Začínáme 11. 9. 2023 a poslední lekce prvního pololetí proběhne 29. 1. 2024.
@@ -19,7 +19,7 @@ Níže naleznete detaily jednotlivých kroužků a také odkazy na přihlášky.
 
 Jóga pro děti
 
-!(/assets/article_images/joga_plakat2023.jpg)
+![](/assets/article_images/joga_plakat2023.jpg)
 
 - Kroužek vede Zuzana Herzingerová.
 - Den a čas konání: sudé úterky 16:00 - 17:00 (kroužek se koná ob týden). Začínáme 19. 9. 2023 a poslední lekce prvního pololetí proběhne 23. 1. 2024.
@@ -31,7 +31,7 @@ Jóga pro děti
 
 Zálesácký kroužek
 
-!(/assets/article_images/zalesak_plakat2023.jpg)
+![](/assets/article_images/zalesak_plakat2023.jpg)
 
 - Kroužek vede Marie Vavřínová.
 - Den a čas konání: liché úterky 16:00 - 18:00 (kroužek se koná ob týden). Začínáme 26. 9. 2023 a poslední lekce prvního pololetí proběhne 30. 1. 2024.
@@ -42,7 +42,7 @@ Zálesácký kroužek
 
 Lesní hudebka pro mladší děti
 
-!(/assets/article_images/hudebka_plakat2023.jpg)
+![](/assets/article_images/hudebka_plakat2023.jpg)
 
 - Kroužek vede Eva Svitáková.
 - Den a čas konání: středa 15:30 - 16:30. Začínáme 20. 9. 2023 a poslední lekce prvního pololetí proběhne 31. 1. 2024.
