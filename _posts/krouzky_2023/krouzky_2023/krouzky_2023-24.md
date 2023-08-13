@@ -63,5 +63,5 @@ Lesní hudebka pro větší děti
 Kroužky budou otevřeny při přihlášení minimálně šesti dětí. Maximální kapacita je 8 dětí (v případě hudebky pro starší děti 10 dětí).
 Pro přihlášení prosím použijte odkazy na přihlášky. Vaše dotazy rádi zodpovíme na mailu lkmalejov@gmail.com. Z tohoto mailu vám též potvrdíme, že se vámi vybraný kružek otvírá, a zašleme instrukce k platbě.
 
-Těšíme se na vaše přihlášky! :-)
+Těšíme se na vaše přihlášky i na setkávání v novém školním roce!
 
