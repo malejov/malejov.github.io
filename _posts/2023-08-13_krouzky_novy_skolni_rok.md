@@ -2,6 +2,7 @@
 layout: post
 title: Otvíráme přihlášky na kroužky v novém školním roce 
 ---
+
 Milí přátelé, s radostí pouštíme do světa zprávu, že pro školní rok 2023/24 rozšiřujeme nabídku malejovských kroužků. K již tradičnímu Zálesáku a Lesní hudebce přibude Lesní výtvarka, kroužek jógy a hudebka pro mladší děti.
 
 Níže naleznete detaily jednotlivých kroužků a také odkazy na přihlášky.
