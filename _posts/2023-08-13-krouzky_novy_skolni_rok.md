@@ -7,7 +7,8 @@ Milí přátelé, s radostí pouštíme do světa zprávu, že pro školní rok 
 
 Níže naleznete detaily jednotlivých kroužků a také odkazy na přihlášky.
 
- Výtvarný lesní kroužek
+
+##### Výtvarný lesní kroužek
 
 ![](/assets/article_images/vytvarka_plakat2023.jpg)
  
@@ -18,7 +19,8 @@ Níže naleznete detaily jednotlivých kroužků a také odkazy na přihlášky.
 - Cena 2200 Kč za pololetí.
 - Přihláška [tady.](https://docs.google.com/forms/d/e/1FAIpQLSdqD7Da-CtcXC9F1543vguPp0QZnCrOZu0mu30tLzOfq8bD-A/viewform?usp=sf_link)
 
-Jóga pro děti
+
+##### Jóga pro děti
 
 ![](/assets/article_images/joga_plakat2023.jpg)
 
@@ -30,7 +32,8 @@ Jóga pro děti
 - Cena 1200 Kč za pololetí.
 - Přihláška [tady.](https://docs.google.com/forms/d/e/1FAIpQLSdEtSJy3UNGfJEtPiVu4PwRafd21MIbEng_UBEGQbEaxXkJmw/viewform?usp=sf_link)
 
-Zálesácký kroužek
+
+##### Zálesácký kroužek
 
 ![](/assets/article_images/zalesak_plakat2023.jpg)
 
@@ -41,7 +44,8 @@ Zálesácký kroužek
 - Cena 1200 kč za pololetí.
 - Přihláška [tady.](https://docs.google.com/forms/d/e/1FAIpQLSfFZfwyq77k-BP00vYwkyz2O7id0KExIYBKhbW_AtDF_hXvBw/viewform?usp=sf_link)
 
-Lesní hudebka pro mladší děti
+
+##### Lesní hudebka pro mladší děti
 
 ![](/assets/article_images/hudebka_plakat2023.jpg)
 
@@ -52,7 +56,8 @@ Lesní hudebka pro mladší děti
 - Cena 3200 Kč za pololetí.
 - Přihláška [tady.](https://docs.google.com/forms/d/e/1FAIpQLSc4sIasmKWfgDg_f0iPuIPkyLm1RxEVR_FmBwEc5vCDo0o9qQ/viewform?usp=sf_link)
 
-Lesní hudebka pro větší děti
+
+##### Lesní hudebka pro větší děti
 
 - Kroužek vede Eva Svitáková.
 - Den a čas konání: čtvrtek 16:00 - 17:00. Začínáme 21. 9. 2023 a poslední lekce prvního pololetí proběhne 25. 1. 2024.
