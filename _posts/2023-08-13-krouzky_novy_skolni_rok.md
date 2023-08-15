@@ -28,7 +28,6 @@ Níže naleznete detaily jednotlivých kroužků a také odkazy na přihlášky.
 - Den a čas konání: sudé úterky 16:00 - 17:00 (kroužek se koná ob týden). Začínáme 19. 9. 2023 a poslední lekce prvního pololetí proběhne 23. 1. 2024.
 - Místo: Libocká sokolovna (Ruzyňská 156, 162 00 Praha 6).
 - Pro děti od 3 do 7 let.
-- Děti, které půjdou rovnou z Malejova, Zuza do Sokolovny přivede. Vyzvedávání po kroužku u Sokolovny.
 - Cena 1200 Kč za pololetí.
 - Přihláška [tady.](https://docs.google.com/forms/d/e/1FAIpQLSdEtSJy3UNGfJEtPiVu4PwRafd21MIbEng_UBEGQbEaxXkJmw/viewform?usp=sf_link)
 
