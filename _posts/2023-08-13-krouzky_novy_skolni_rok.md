@@ -52,7 +52,7 @@ Níže naleznete detaily jednotlivých kroužků a také odkazy na přihlášky.
 - Den a čas konání: středa 15:30 - 16:30. Začínáme 20. 9. 2023 a poslední lekce prvního pololetí proběhne 31. 1. 2024.
 - Místo: obora Hvězda a zázemí Komunitní zahrady Malejov.
 - Pro děti od 3 do 5 let.
-- Cena 3200 Kč za pololetí.
+- Cena 2700 Kč za pololetí.
 - Přihláška [tady.](https://docs.google.com/forms/d/e/1FAIpQLSc4sIasmKWfgDg_f0iPuIPkyLm1RxEVR_FmBwEc5vCDo0o9qQ/viewform?usp=sf_link)
 
 
@@ -62,7 +62,7 @@ Níže naleznete detaily jednotlivých kroužků a také odkazy na přihlášky.
 - Den a čas konání: čtvrtek 16:00 - 17:00. Začínáme 21. 9. 2023 a poslední lekce prvního pololetí proběhne 25. 1. 2024.
 - Místo: obora Hvězda a zázemí Komunitní zahrady Malejov.
 - Pro děti od 5 do 8 let.
-- Cena 3200 Kč za pololetí.
+- Cena 2700 Kč za pololetí.
 - Přihláška [tady.](https://docs.google.com/forms/d/e/1FAIpQLSf0NQO-S18HVxZfNdINGhbGR4IfDyZDg8XuN0tK0mFkwsCe7w/viewform?usp=sf_link)
 
 ----------
