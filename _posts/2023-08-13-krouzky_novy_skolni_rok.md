@@ -70,4 +70,7 @@ Níže naleznete detaily jednotlivých kroužků a také odkazy na přihlášky.
 Kroužky budou otevřeny při přihlášení minimálně šesti dětí. Maximální kapacita je 8 dětí (v případě hudebky pro starší děti 10 dětí).
 Pro přihlášení prosím použijte odkazy na přihlášky. Vaše dotazy rádi zodpovíme na mailu lkmalejov@gmail.com. Z tohoto mailu vám též potvrdíme, že se vámi vybraný kružek otvírá, a zašleme instrukce k platbě.
 
+Na kroužky můžete čerpat příspěvek z programů [Aktivní město](https://aktivnimesto.cz/) a [Darujeeme kroužky dětem.]
+(https://www.darujemekrouzky.cz/) Program Aktivní město mohou využít obyvatelé městských částí Praha 5, 6 a 17. Praha 5 poskytuje příspěvek pouze na sportovní činnost (z naší nabídky lze tedy příspěvek uplatnit pouze na kroužek jógy), ostatní městské části na volnočasové aktivity obecně a příspěvek lze využít na jakýkoli kroužek z naší nabídky.
+
 Těšíme se na vaše přihlášky i na setkávání v novém školním roce!
