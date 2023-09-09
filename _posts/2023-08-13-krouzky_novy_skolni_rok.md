@@ -41,7 +41,8 @@ Níže naleznete detaily jednotlivých kroužků a také odkazy na přihlášky.
 - Místo: obora Hvězda a zázemí Komunitní zahrady Malejov.
 - Pro děti od 5 do 10 let.
 - Cena 1200 kč za pololetí.
-- Přihláška [tady.](https://docs.google.com/forms/d/e/1FAIpQLSfFZfwyq77k-BP00vYwkyz2O7id0KExIYBKhbW_AtDF_hXvBw/viewform?usp=sf_link) **Kapacita kroužku pro teto školní rok je naplněna.** Hlásit se však stále můžete jako náhradníci, v případě uvolnění místa vás budeme kontaktovat.
+- Přihláška [tady.](https://docs.google.com/forms/d/e/1FAIpQLSfFZfwyq77k-BP00vYwkyz2O7id0KExIYBKhbW_AtDF_hXvBw/viewform?usp=sf_link)
+- **Kapacita kroužku pro tento školní rok je naplněna.** Hlásit se však stále můžete jako náhradníci, v případě uvolnění místa vás budeme kontaktovat.
 
 
 #### Lesní hudebka pro mladší děti
