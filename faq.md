@@ -25,7 +25,7 @@ Na pozemku roste mnoho stromů a keřů: vzrostlé duby, javor, jasany, jabloně
 
 ### Jak to ve vaší lesní školce chodí?
 
-Dbáme na to, abychom v provozu lesního klubu vytvořili prostor pro srozumitelný denní řád. Mnohé činnosti (ranní kruh, odchod do obory, jídlo, spánek, rozloučení před odchodem domů) máme spojené s rituály, které řídí pedagog. Děti je možné do klubu přivést mezi 8:15 a 8:50. V tento čas, než se všichni sejdeme, je prostor pro jednoduché vyrábění, malování nebo práci se dřevem. V 9 hodin odcházíme do obory, kde se všichni v ranním kruhu přivítáme, zpíváme písničky, hrajeme na hudební nástroje, říkáme básničky a hrajeme krátké pohybové hry. v oboře Hvězda máme tu několik prochozených cestiček a několik “svých míst”, kde můžeme pozorovat koloběh přírody. V oboře kolem desáté hodiny svačíme. V lese se se snažíme dětem dopřát prostor pro volnou hru, kterou považujeme za velký poklad v životě předškolních dětí. Na oběd se vracíme do jurty. Kolem 12.30 je možné vyzvednout děti, které v Malejově netráví celý den. Mladší děti si jdou po obědě odpočinout a spát, starší děti se věnují klidové činnosti (čtení, předškolní aktivity, tvoření). Po odpočinku se všichni scházíme v závěrečném kruhu, kde si sdělujeme dojmy z prožitého dne a kde se loučíme. Rodiče si děti vyzvedávají mezi 15:30 až 16:15, najdou nás u jurty, kde si hrajeme anebo zahradničíme. 
+Dbáme na to, abychom v provozu lesního klubu vytvořili prostor pro srozumitelný denní řád. Mnohé činnosti (ranní kruh, odchod do obory, jídlo, spánek, rozloučení před odchodem domů) máme spojené s rituály, které řídí pedagog. Děti je možné do klubu přivést mezi 8:15 a 8:50. V tento čas, než se všichni sejdeme, je prostor pro jednoduché vyrábění, malování nebo práci se dřevem. V 9 hodin odcházíme do obory, kde se všichni v ranním kruhu přivítáme, zpíváme písničky, hrajeme na hudební nástroje, říkáme básničky a hrajeme krátké pohybové hry. V oboře Hvězda máme několik prochozených cestiček a několik “svých míst”, kde můžeme pozorovat koloběh přírody. Kolem desáté hodiny venku svačíme. V lese se se snažíme dětem dopřát prostor pro volnou hru, kterou považujeme za velký poklad v životě předškolních dětí. Na oběd se vracíme do jurty. Kolem 12.30 je možné vyzvednout děti, které v Malejově netráví celý den. Mladší děti si jdou po obědě odpočinout a spát, starší děti se věnují klidové činnosti (čtení, předškolní aktivity, tvoření). Po odpočinku se všichni scházíme v závěrečném kruhu, kde si sdělujeme dojmy z prožitého dne a kde se loučíme. Rodiče si děti vyzvedávají mezi 15:30 až 16:15, najdou nás u jurty, kde si hrajeme anebo zahradničíme. 
 
 
 ### Co bude moje dítě celý den jíst?
@@ -53,7 +53,7 @@ Na budování a zvelebování zázemí získáváme finance zejména z grantů a
 
 ### Jaká je výše měsíčních příspěvků?
 
-Cena pro školní rok 2023/2024 činí 4400 Kč za dvoudenní docházku s možností náhrad a 8000 Kč za čtyřdenní docházku. Výši členských příspěvků pro další školní rok oznámíme vždy nejpozději v březnu předchozího školního roku.
+Cena pro školní rok 2024/2025 činí 5000 Kč za dvoudenní docházku s možností náhrad a 8600 Kč za čtyřdenní docházku. Výši členských příspěvků pro další školní rok oznámíme vždy nejpozději v březnu předchozího školního roku.
 
 
 ### Jaká je provozní doba klubu?
