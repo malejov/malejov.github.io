@@ -1,4 +1,3 @@
-
 ---
 layout: post
 title:  Přidej se k nám - hledáme posilu
@@ -13,4 +12,4 @@ Znáte někoho, komu by práce u nás seděla? Budeme rádi, když ho / ji s ná
 
 
 
-![Hledáme posily, inzerát](/assets/article_images/INZERÁT_malejovFINAL_page-0001.jpg)
+![Hledáme posilu do malejovského průvodcovského týmu](/assets/article_images/INZERÁT_malejovFINAL_page-0001.jpg)
