@@ -53,12 +53,12 @@ Na budování a zvelebování zázemí získáváme finance zejména z grantů a
 
 ### Jaká je výše měsíčních příspěvků?
 
-Cena pro školní rok 2024/2025 činí 5000 Kč za dvoudenní docházku s možností náhrad a 8600 Kč za čtyřdenní docházku. Výši členských příspěvků pro další školní rok oznámíme vždy nejpozději v březnu předchozího školního roku.
+Cena pro školní rok 2025/2026 činí 5250 Kč za dvoudenní docházku s možností náhrad a 8850 Kč za čtyřdenní docházku. Výši členských příspěvků pro další školní rok oznámíme vždy nejpozději v dubnu předchozího školního roku.
 
 
 ### Jaká je provozní doba klubu?
 
-Ve školním roce 2022/2023 funguje klub od pondělí do čtvrtka od 8:15 do 16:15 hodin, docházka je možná dvoudenní (pondělí + úterý nebo středa + čtvrtek) a čtyřdenní. Pátek je vyhrazen pro komunitní setkávání dětí a rodičů.
+Ve školním roce 2024/2025 funguje klub od pondělí do čtvrtka od 8:15 do 16:15 hodin, docházka je možná dvoudenní (pondělí + úterý nebo středa + čtvrtek) a čtyřdenní. Pátek je vyhrazen pro příležitostné komunitní setkávání dětí a rodičů.
 
 
 ### Moje dítě nemá zkušenost s pobytem v kolektivu beze mne. Co s tím?
