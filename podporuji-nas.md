@@ -11,6 +11,8 @@ permalink: /podporuji-nas/
 
 ## Městská část Praha 6
 
+Podpořeno v rámci dotačního programu na podporu ekologických aktivit ve veřejném prostoru.
+
 <div class="logos">
 <a href="https://www.praha6.cz/">
 <img src="/assets/podporuji/Logo_Praha6.jpg" height="100" />
