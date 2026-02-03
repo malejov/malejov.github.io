@@ -9,6 +9,13 @@ permalink: /podporuji-nas/
 .logos img { display: inline; }
 </style>
 
+## Městská část Praha 6
+
+<div class="logos">
+<a href="https://www.praha6.cz/">
+<img src="/assets/podporuji/Logo_Praha6.jpg" height="100" />
+</a>
+
 
 ## Česká spořitelna a Nadace Via
 
