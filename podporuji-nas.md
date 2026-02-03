@@ -17,6 +17,7 @@ Podpořeno v rámci dotačního programu na podporu ekologických aktivit ve ve�
 <a href="https://www.praha6.cz/">
 <img src="/assets/podporuji/Logo_Praha6.jpg" height="100" />
 </a>
+</div>
 
 
 ## Česká spořitelna a Nadace Via
