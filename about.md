@@ -38,7 +38,7 @@ Název našeho lesního klubu odkazuje na původní les, nepřicházíme však d
 
 K geniu loci obory Hvězda patří nejen hledání rovnováhy mezi přírodou a člověkem, ale také duchovní tradice staršího [břevnovského kláštera][brevnov] a mladší [libocké farnosti][farnost], která nám ostatně v našich počátcích poskytovala zázemí ve farním centru Malejov.
 
-![Logo Lesního klubu Malejov](/assets/article_images/logo.png)
+![Logo Lesního klubu Malejov](/assets/article_images/logo_cele.jpg)
 
 
 ### Zdroj
