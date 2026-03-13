@@ -12,7 +12,7 @@ permalink: /kontakt/
 - Telefon: +420 604 648 573 (Bc. Kamila Zatloukalová, ředitelka)
 - Číslo účtu: 2201701486/2010
 - Facebook: [https://www.facebook.com/LKMalejov](https://www.facebook.com/LKMalejov)
-- Jsme členy [Asociace lesních MŠ](https://www.lesnims.cz/lesni-klub-malejov.html).
+- Jsme certifikovanými členy [Asociace lesních MŠ](https://www.lesnims.cz/lesni-klub-malejov.html).
 
 <p style="text-align: center; font-style: italic;">
 <iframe style="border:none" src="https://en.frame.mapy.cz/s/meculadufe" width="700" height="466" frameborder="0"></iframe>
