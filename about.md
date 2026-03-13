@@ -22,8 +22,6 @@ V průběhu dne klademe důraz na pevné body programu (ranní a odpolední kruh
 
 Charakter naší komunity ovlivňuje také prostor, v němž se scházíme: kolem lesa stojí zeď, která jej chrání a odděluje od ruchu města, zároveň však do obory vede dostatek cest, kudy můžete vejít. Taková je i naše komunita, jsme dostatečně malá “smečka”, která poskytuje nám i dětem bezpečný prostor pro vytváření přátelství, zároveň však, pokud budete chtít a najdete k nám cestu, můžete vejít některou z bran a přidat se.
 
-Zachováme i komunitní setkávání rodičů s menšími (i úplně nejmenšími) dětmi, která jsou otevřená všem zájemcům.
-
 ![Pondělní setkání](/assets/article_images/pondelni_setkani.jpg)
 
 
@@ -36,7 +34,7 @@ Později les odkoupil od benediktinů král Ferdinand I., aby zde roku 1534 vybu
 
 ![Obora s letohrádkem Hvězda na konci 19. století](/assets/article_images/hvezda_letohradek.jpg)
 
-Název našeho lesního klubu odkazuje na původní les, ale zároveň logo odkazuje i na letohrádek Hvězda v podobě korun stromů. Nepřicházíme do pozůstatků lesa proto, abychom jej kultivovali a obdělávali, ale abychom byli sami kultivováni a vzděláváni pobytem v přírodě. Přitom ovšem nechceme nostalgicky a naivně usilovat o návrat k divoké přírodě, ale spíše se učit žít s ní v rovnováze na místě, kde můžeme čerpat z tradice dlouhé tři čtvrtě tisíciletí.
+Název našeho lesního klubu odkazuje na původní les, nepřicházíme však do pozůstatků lesa proto, abychom jej kultivovali a obdělávali, ale abychom byli sami kultivováni a vzděláváni pobytem v přírodě. Přitom ovšem nechceme nostalgicky a naivně usilovat o návrat k divoké přírodě, ale spíše se učit žít s ní v rovnováze na místě, kde můžeme čerpat z tradice dlouhé tři čtvrtě tisíciletí.
 
 K geniu loci obory Hvězda patří nejen hledání rovnováhy mezi přírodou a člověkem, ale také duchovní tradice staršího [břevnovského kláštera][brevnov] a mladší [libocké farnosti][farnost], která nám ostatně v našich počátcích poskytovala zázemí ve farním centru Malejov.
 
