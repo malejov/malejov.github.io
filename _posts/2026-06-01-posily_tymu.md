@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  Přidej se do našeho průvodcovského týmu
+title:  Přidejte se do našeho průvodcovského týmu
 tags:   hledáme
 ---
 
